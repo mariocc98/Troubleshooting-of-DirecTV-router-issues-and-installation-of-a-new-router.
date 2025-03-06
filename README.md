@@ -1,0 +1,1 @@
+# Troubleshooting-of-DirecTV-router-issues-and-installation-of-a-new-router.
